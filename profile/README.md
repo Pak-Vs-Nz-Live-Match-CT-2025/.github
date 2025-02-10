@@ -2,9 +2,9 @@
 
 The **ICC Champions Trophy 2025** is back after an eight-year hiatus, and cricket fans worldwide are eager to watch top teams battle for glory.**Pakistan vs. New Zealand** in a highly anticipated contest.
 
-[**➤ Watch Now Free**](https://www.effectiveratecpm.com/ffuh7ty37x?key=618fe124a54784a2c1792e3ae1a2bfec)
+#### [**➤ Watch Now Free**](https://www.effectiveratecpm.com/ffuh7ty37x?key=618fe124a54784a2c1792e3ae1a2bfec)
 
-[**➤ Watch On Star sports Free**](https://www.effectiveratecpm.com/ffuh7ty37x?key=618fe124a54784a2c1792e3ae1a2bfec)
+#### [**➤ Watch On Star sports Free**](https://www.effectiveratecpm.com/ffuh7ty37x?key=618fe124a54784a2c1792e3ae1a2bfec)
 
 As the host nation, Pakistan will look to make a strong start against a competitive New Zealand side.  
 
